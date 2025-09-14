@@ -7,5 +7,5 @@
 ![preview](preview.png)
 
 ## How to get code
-- Contact me on [Telegram]([https:/123:90](https://t.me/phoggq)) to buy full code with **100$**
+- Contact me on [Telegram](https://t.me/phoggq) to buy full code with **100$**
 
